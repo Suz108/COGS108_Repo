@@ -1,5 +1,5 @@
 # COGS108_Repo
 
-Hey, It's Suzie.
+Hey, it's Suzie.
 
 I love :pizza: :coffee:, and :sunflower:. 
