@@ -2,4 +2,4 @@
 
 Hey, It's Suzie.
 
-I love :Pizza: :Coffee:, and :flowers:. 
+I love :pizza: :coffee:, and :sunflower:. 
